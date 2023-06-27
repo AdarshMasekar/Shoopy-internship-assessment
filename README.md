@@ -1,0 +1,1 @@
+# Shoopy-internship-assessment
